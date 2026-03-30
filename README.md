@@ -17,7 +17,7 @@ Qureka Gamez is one of the best platforms to play quiz games online and win exci
 4. Join contests and win prizes
 
 ## 🚀 Play Now:
-👉 https://play42.qurekagamez.com
+👉 [Play Quiz Game Online & Win Rewards](https://play42.qurekagamez.com)
 
 ## 🔥 Keywords:
 play quiz game online, earn money quiz game, trivia game India, win rewards quiz
