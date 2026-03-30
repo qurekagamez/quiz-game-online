@@ -1,6 +1,8 @@
 # quiz-game-online
 👉Play quiz game online and win rewards with Qureka Gamez
 # Play Quiz Game Online & Win Rewards
+## 🚀 Read Full Guide
+👉 [Play Quiz Game Online & Win Rewards Guide](https://qurekagamez.com/blogs)
 
 Qureka Gamez is one of the best platforms to play quiz games online and win exciting rewards. Participate in daily trivia challenges, weekly mega contests, and earn coins by answering questions correctly.
 
